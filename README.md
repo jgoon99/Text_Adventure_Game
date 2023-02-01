@@ -29,4 +29,4 @@ Book description from Good Readers. goodrealders.com
 
 If you want to play? 
 Copy & Paste URL
-https://drive.google.com/file/d/1RkXW9WQshS3WAdciHQFmbdQ301gWUWY9/view?usp=sharing
+https://colab.research.google.com/drive/1RkXW9WQshS3WAdciHQFmbdQ301gWUWY9#scrollTo=66ad066c
