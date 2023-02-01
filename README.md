@@ -26,3 +26,7 @@ Two young children pay a visit to Halmoni (grandmother in Korean), only to disco
 Translations to Korean text in the story and more about the folktale-inspired characters are included at the end.
 
 Book description from Good Readers. goodrealders.com
+
+If you want to play? 
+Copy & Paste URL
+https://drive.google.com/file/d/1RkXW9WQshS3WAdciHQFmbdQ301gWUWY9/view?usp=sharing
